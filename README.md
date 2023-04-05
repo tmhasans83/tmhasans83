@@ -1,8 +1,5 @@
 ![Lead generation specialist](https://media.licdn.com/dms/image/D5616AQG-qfP4zcJ4nw/profile-displaybackgroundimage-shrink_350_1400/0/1677942785088?e=1686182400&v=beta&t=N8Cc3AP71zUyOcgsPmvbCbnuOxfv1TZU0_29pl_rf8o)
 ### Hi there 👋, T.m.Manirul Hasan
-- 💬 Ask me about ...#### Lead generation specialist
-![Lead generation specialist](https://media.licdn.com/dms/image/D5616AQG-qfP4zcJ4nw/profile-displaybackgroundimage-shrink_350_1400/0/1677942785088?e=1686182400&v=beta&t=N8Cc3AP71zUyOcgsPmvbCbnuOxfv1TZU0_29pl_rf8o)
-
 As a social media marketer, I was tasked with generating leads for a B2B company through LinkedIn. I started by creating a LinkedIn profile for the company and optimizing it with relevant keywords and industry-specific information.
 
 Next, I identified the target audience for the company and started building a list of potential leads using LinkedIn's advanced search feature. I used keywords such as job titles, company names, and location to narrow down the search results and find prospects who fit the company's ideal customer profile.
